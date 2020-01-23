@@ -1,1 +1,1 @@
-# kvant
+# kvantorium42.ru/it
